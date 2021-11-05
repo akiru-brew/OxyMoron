@@ -1,5 +1,7 @@
 # OxyMoron
 
+![label](label.png)
+
 ## Ingredients
 
 For a 25 litre batch, as at [Malt Miller](https://www.themaltmiller.co.uk/rg/?id=226090)
