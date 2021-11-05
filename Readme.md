@@ -67,10 +67,12 @@ Fermentation and gluten removal were combined. Due to winter coming whilst I was
 
 ## Barrelling
 
-During siphonoinh to a barrel the ber lacked mouthfeel. As a thrd experiment 50g of lactose sugar was added.
+During siphoning to a barrel the beer lacked mouthfeel. As a third experiment 50g of lactose sugar was added.
 
 ## Lessons learnt
 
 * Making a thin beer taste like beer is hard.
 * Waiting to test the gluten enzyme on a guinea pig...
+
+## 
 
