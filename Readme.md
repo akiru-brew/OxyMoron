@@ -49,7 +49,7 @@ Although I didn't need much water to mash (according to the calculators) i neede
 
 ## Fermentation
 
-Fermentation and gluten removel were conbined. Due to winter comign whilst I was away the temreperate control wasn't very good.
+Fermentation and gluten removal were combined. Due to winter coming whilst I was away the temperature control wasn't very good.
 
 ## Actual figures
 
