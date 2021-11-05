@@ -69,6 +69,6 @@ During siphonoinh to a barrel the ber lacked mouthfeel. As a thrd experiment 50g
 
 ## Lessons learnt
 
-* Mkaing a thin beer taste like beer is hard.
+* Making a thin beer taste like beer is hard.
 * Waiting to test the gluten enzyme on a guinea pig...
 
