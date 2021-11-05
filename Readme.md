@@ -74,5 +74,3 @@ During siphoning to a barrel the beer lacked mouthfeel. As a third experiment 50
 * Making a thin beer taste like beer is hard.
 * Waiting to test the gluten enzyme on a guinea pig...
 
-## 
-
